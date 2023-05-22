@@ -4,4 +4,4 @@
 #### 🕵️‍♂️ Je suis currieux et adaptatif.
 #### 🤔 Je réfléchi beaucoup plus que je parle.
 #### 🖱 PC Gamer.
-#### ❓ Peut-ont laisser un skidoo dans la cours ?
+#### ❓ Un skiddo on peux-tu laisser ça dans cours ?
